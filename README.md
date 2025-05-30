@@ -1,0 +1,1 @@
+# bitget-referral-code-korea
